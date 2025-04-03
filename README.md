@@ -4,6 +4,7 @@
 
 Looking for a **Quotex promo code** that actually works? Use **[DEPOSIT25](https://smartthriftfinder.com/quotex-kpseo)** when making a **minimum deposit of $100** and get a **25% deposit bonus instantly**! This extra boost helps you maximize your trading potential and explore more profitable opportunities.  
 
+<a href="https://broker-qx.pro/sign-up/fast/?lid=1109154"><img src="https://static.quotex.io/files/12_en/468_60.jpg"></a> 
 ---
 
 ## 🛠 How to Redeem Your Quotex Bonus  
@@ -36,6 +37,7 @@ By following these steps, you’ll have **extra capital** to explore new strateg
 💡 **Don’t miss this exclusive offer** to boost your capital and enhance your trading experience!  
 
 ---
+<a href="https://broker-qx.pro/sign-up/fast/?lid=1109154"><img src="https://static.quotex.io/files/10_en/468_60.jpg"></a>
 
 ## 📈 Why Trade with Quotex?  
 
