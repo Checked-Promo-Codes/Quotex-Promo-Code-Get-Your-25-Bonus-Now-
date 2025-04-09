@@ -53,7 +53,7 @@ By following these steps, you’ll have **extra capital** to explore new strateg
   </ul>
 ---
 <a href="https://broker-qx.pro/sign-up/fast/?lid=1109154">
-  <img src="https://static.quotex.io/files/10_en/468_60.jpg" alt="Quotex Bonus Code 25%" title="Get a 25 Bonus now" />
+  <img src="https://static.quotex.io/files/10_en/468_60.jpg" alt="Quotex Bonus Code 25%" title="Quotex 25% Deposit Bonus now" />
 </a>
 
 ## 📈 Why Trade with Quotex?  
