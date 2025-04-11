@@ -75,4 +75,10 @@ Quotex is a **trusted trading platform** offering a wide range of financial asse
 
 **Quotex** stands out as a **reliable broker** with great bonuses and **fast withdrawals**. By using promo code **DEPOSIT25**, you can **instantly increase your deposit** and trade with **more capital** for better opportunities.  
 
-📢 **Act now! Claim your 25% deposit bonus today** and take advantage of better trading opportunities!  
+📢 **Act now! Claim your 25% deposit bonus today** and take advantage of better trading opportunities! 
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
